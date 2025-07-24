@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Wafaa Farook
 **A passionate Student || Software Engineer**
 
-Email Me 👉 ✉️ **wafaafarook24@gnail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **wafaafarook24@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Web Navigation Agent
 - 🌱 **I’m currently learning:** AI/ML
