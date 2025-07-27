@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Wafaa Farook
-**A passionate Student || Software Engineer**
+**A passionate Student || B.Tech Computer Science and Engineering**
 
 Email Me 👉 ✉️ **wafaafarook24@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
